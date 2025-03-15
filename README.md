@@ -2,7 +2,7 @@
 - 👀 I’m interested in 
 - 🌱 I’m currently learning to use kali linux 
 - 💞️ I’m looking for any advice anyone is willing to give me.
- 📫 Yon reach me at topsy_crets2332@proton.me
+ 📫 Yon reach can contact me at topsy_crets2332@proton.me
   
 
 <!---
